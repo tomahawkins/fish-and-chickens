@@ -20,7 +20,7 @@
 4. **Chickens:**
     1. Check that the water container is at least half full.
     2. Check that the water container valves are working and not stuck open or stuck closed.
-    3. Clean out debrie from food dispenser and add new food so it is about half full.
+    3. Clean out debris from food dispenser and add new food so it is about half full.
     4. Leave a couple of cups of grubs on the ground in the run.
     5. Collect and return eggs to refrigerator.
     6. If you want to hang out for a bit, the birds would love to run around the backyard.
@@ -31,11 +31,13 @@
        However, the Barred Rock (gray and white) is hard
        to catch so I'll use the hockey stick to slowly coral her back to the coop.
        Open the door and she should walk right in.
-       There's lots of entertaining youtube videos on how to pick up a chicken:
+       There's lots of entertaining YouTube videos on how to pick up a chicken:
         * <https://www.youtube.com/watch?v=Xt5rI5Sd3Gs>
         * <https://www.youtube.com/watch?v=ZJdkmgiUqs8>
         * <https://www.youtube.com/watch?v=vb1XrUZk22s>
-    7. Make sure the coop door and hatches are secured when you leave.
+    7. Squirrels have been digging holes under the coop.  If you see any, fill them back in with
+       the shovel.  I reinforced the coop with rocks to hopefully this will be less of an issue.
+    8. Make sure the coop door and hatches are secured when you leave.
 5. Water the plants on and along the brick wall in front of the house.
 6. When you leave, shut off the sprinkler in the vegetable garden.
 
