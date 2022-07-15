@@ -28,13 +28,13 @@
        and you won't have to watch them too closely.  It can be somewhat of a hassle to get
        them back in the coop, so this is totally optional.  3 of the 4 birds are easy to pick
        up so I tend to just carry them back.
+       However, the Barred Rock (gray and white) is hard
+       to catch so I'll use the hockey stick to slowly coral her back to the coop.
+       Open the door and she should walk right in.
        There's lots of entertaining youtube videos on how to pick up a chicken:
         * <https://www.youtube.com/watch?v=Xt5rI5Sd3Gs>
         * <https://www.youtube.com/watch?v=ZJdkmgiUqs8>
         * <https://www.youtube.com/watch?v=vb1XrUZk22s>
-       However, the Barred Rock (gray and white) is hard
-       to catch so I'll use the hockey stick to slowly coral her back to the coop.
-       Open the door and she should walk right in.
     7. Make sure the coop door and hatches are secured when you leave.
 5. Water the plants on and along the brick wall in front of the house.
 6. When you leave, shut off the sprinkler in the vegetable garden.
