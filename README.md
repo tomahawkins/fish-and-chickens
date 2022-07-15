@@ -35,7 +35,7 @@
         * <https://www.youtube.com/watch?v=Xt5rI5Sd3Gs>
         * <https://www.youtube.com/watch?v=ZJdkmgiUqs8>
         * <https://www.youtube.com/watch?v=vb1XrUZk22s>
-    7. Squirrels have been digging holes under the coop.  If you see any, fill them back in with
+    7. Squirrels have been digging holes to get into the coop.  If you see any, fill them back in with
        the shovel.  I reinforced the coop with rocks so hopefully this will be less of an issue.
     8. Make sure the coop door and hatches are secured when you leave.
 5. Water the plants on and along the brick wall in front of the house.
